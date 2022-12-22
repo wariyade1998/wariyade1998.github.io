@@ -1,0 +1,1 @@
+# wariyade1998.github.io
